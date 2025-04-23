@@ -10,8 +10,8 @@ With **EcoKids**, kids will:
 
 Let’s raise a generation of little Earth heroes! 💚🌎
 
-## [DEMO - DRIVE LINK](https://your-demo-link-here.com)  
-## [DOWNLOAD APK](https://your-apk-link-here.com)
+## [DEMO - DRIVE LINK](https://drive.google.com/file/d/1-5yl3bOMOGmXhUmD1-xhHleiz4tDUoLb/view?usp=drive_link)  
+## [DOWNLOAD APK](https://drive.google.com/file/d/13Jb3rr6QWbGuMDgHj0lEQTzTheKmeFPk/view?usp=drive_link)
 
 ---
 
